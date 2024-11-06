@@ -1,5 +1,5 @@
 
-# 👽 ET here.
+# 👽 E.T. here.
 
 Still figuring out Wi-Fi on my spaceship, but I’ve mastered Earth tech — sort of.  
 I debug with my glowing finger and sometimes leave comments in a language no one understands (literally).  
